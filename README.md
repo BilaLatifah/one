@@ -1,1 +1,1 @@
-# I tried to create a repository first time
+Bila Latifah adalah seorang pelajar yang gemar membaca. Dengan semangatnya yang tak kenal lelah dalam memperluas pengetahuan, Bila selalu menjadikan buku sebagai sahabat setia. Setiap halaman yang dibaca menjadi sebuah petualangan baru baginya. Ketertarikan Bila pada dunia literasi tidak hanya membuatnya cerdas, tetapi juga membuka cakrawala baru dalam pemikirannya. Sebagai seorang pelajar, Bila Latifah terus menggali ilmu dan memperkaya wawasan, siap untuk menapaki masa depan dengan keyakinan dan keberanian.
